@@ -4,7 +4,7 @@
 
 **Love678** adalah aplikasi Android yang fokus pada streaming langsung, memungkinkan pengguna untuk menonton dan berinteraksi dengan pembawa acara dari seluruh dunia. Dengan kombinasi hiburan dan jejaring sosial, aplikasi ini memberikan pengalaman interaktif yang sangat cocok bagi anak muda yang ingin menikmati pertunjukan langsung sambil berinteraksi dengan pembawa acara dan pengguna lainnya. Baik Anda suka musik, tari, atau percakapan santai, **Love678 Mod APK** menawarkan semua yang Anda butuhkan untuk bersenang-senang.
 
-## Unduh Sekarang:👉 https://heyapks.com/
+## Unduh Sekarang: 👉 https://heyapks.com/love678.html
 ![love 68](https://github.com/user-attachments/assets/d933cf53-dd82-4199-ae23-dbde50673030)
 
 ### Fitur-Fitur Love678
